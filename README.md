@@ -1,7 +1,7 @@
 # Projects-and-Certificates
 In this repository I will upload my projects and certificate.
 
-My profile accounts in different social medias,
+My social media accounts and my official E-mail address,
 
 My linkedin Profile:     https://www.linkedin.com/in/ashok-kumar-94b22b211/
 
